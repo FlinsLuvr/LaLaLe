@@ -19,7 +19,7 @@ Minor kins:
 
 Genshin: **Beidou**, **Nefer**, Arlecchino, Neuvilette, **Ayato**, Itto, **Baizhu**, **Alhaitham**, Kaveh, Aino, Kinich, **Ororon**, Ifa, **Kuki**
 
-HSR: **Caterina**, **Cipher**, **Mydei**, **Phainon**, **Dan Heng** (all forms), Blade, Robin, Firefly, **Argenti**, Arlan, **Moze**, Jing Yuan, Sunday, Boothill, Ashveil, **Reca**
+HSR: **Caterina**, **Cipher**, **Mydei**, **Phainon**, **Dan Heng** (all forms), Blade, Robin, Firefly, **Argenti**, Arlan, **Moze**, Jing Yuan, **Sunday**, Boothill, Ashveil, **Reca**
 
 WUWA: **Jiyan**, **Luuk**, Brant, **Qiuyuan**, **Hiyuki**, M&F Rover, Scar
 
@@ -37,7 +37,7 @@ I don't normally like hanging in big crowds due to not knowing how other people 
 
 Please from the bottom of your heart don't snap at me if I do something against your own set rules or boundaries and I don't realize. I have a tender heart and would never let myself live it down let alone you because I would want to make things right. If you don't like to be touched or talked to please let it be visible in your bio since I do not always check carrd's/strawpwages/ect. unless someone states so in their description. (Meaning if your PT boundaries are on another site, I might not see it)  
 
-
+With that said, I am C+H friendly even with friends! DNC please I struggle to find my own style and do not want what I have copied/stolen. I ONLY speak out of whisper if I am with a group of friends; otherwise, please W2I. 
 
 ... Now that that's over, I hope we can enjoy each others company!
 
