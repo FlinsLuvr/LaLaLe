@@ -1,6 +1,6 @@
 ## Kinlist, Extra boundaries, and extra stuff since I didn't want to write it all on my carrd:
 
-Major kins:
+Major kins (fictionkin) *friends may use my real name*:
 **Lumi** (WUWA) 
 **Varka** (Genshin Impact)
 **March 7th** (HSR)
@@ -8,6 +8,7 @@ Major kins:
 **Flins** (Genshin Impact)
 **Furina** (Genshin Impact)
 **Lynx** (HSR)
+**Pierrot** (TFC) -A side note for this; I do not involve myself in doing the things he does in real life. He is a comfort character and I cannot control how I feel-
 
 Minor kins:
 *Thoma* (Genshin Impact) 
@@ -22,6 +23,11 @@ Genshin: **Beidou**, **Nefer**, Arlecchino, Neuvilette, **Ayato**, Itto, **Baizh
 HSR: **Caterina**, **Cipher**, **Mydei**, **Phainon**, **Dan Heng** (all forms), Blade, Robin, Firefly, **Argenti**, Arlan, **Moze**, Jing Yuan, **Sunday**, Boothill, Ashveil, **Reca**
 
 WUWA: **Jiyan**, **Luuk**, Brant, **Qiuyuan**, **Hiyuki**, M&F Rover, Scar
+
+
+## Some Other Fandoms I enjoy:
+
+TFC, RE, TADC, Hazbin/Helluva
 
 
 
@@ -41,11 +47,3 @@ With that said, I am C+H friendly even with friends! DNC please I struggle to fi
 
 ... Now that that's over, I hope we can enjoy each others company!
 
-
-![description](https://media.discordapp.net/attachments/1084836113778229268/1493719450220761148/stamp_1776200096_285ff430de9746b3891016e00afa1ec9.png?ex=69dffe24&is=69deaca4&hm=30496c6fdc90b5b3b258a387b50cd1b50717ab886e47dcda86251c98bd7ae4c7&=&format=webp&quality=lossless)
-
-![description](https://media.discordapp.net/attachments/1084836113778229268/1493719450686591167/stamp_1776200614_422c7627bf7c4b349201574e9b687a36.png?ex=69dffe25&is=69deaca5&hm=424722f63e445953fabfd61c9257900a72e6785018c425e37a0e13b167259753&=&format=webp&quality=lossless)
-
-![description](https://media.discordapp.net/attachments/1084836113778229268/1494137151426924664/stamp_1776300386_c821115ee65c4ab28963f8a1a9599827.gif?ex=69e18328&is=69e031a8&hm=44609319c0af2c32fbf2898abc8f683474b9a07a559e024a0240491cb04d8edc&=)
-
-![description](https://media.discordapp.net/attachments/1084836113778229268/1494137151829315655/stamp_1776300268_3187287b4f034cc19d4af30d686c51ed.gif?ex=69e18328&is=69e031a8&hm=fd06adfbddda00b93bc5a00815ddd558bb2d5ddcdfd687bb51b620b1e95aab52&=)
